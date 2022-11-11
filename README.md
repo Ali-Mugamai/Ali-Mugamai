@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+ My name is Ali Mugamai. Im 15 studying at st Mother Teresa highschool. 
+
+hobbies and interests 👾:
+tv shows, playing video games, coding, playing soccer, army cadets, manga/anime and learning about outer space!    
+
+
+
 coding languages i know 🖥️:
 
 
